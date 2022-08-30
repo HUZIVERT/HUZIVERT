@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HUZIVERT
+- 👀 I’m interested in coding in web3
+- 🌱 I’m currently learning html
+- 💞️ I’m looking to collaborate on nothing yet.
+- 📫 Reach me on; faruqolatoye14@gmail.com
